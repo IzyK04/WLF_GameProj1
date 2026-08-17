@@ -1,0 +1,9 @@
+README
+
+COLLABORATORS
+Loch
+Lauren
+Leigh
+Izzy
+
+GAME DESCRIPTION 
